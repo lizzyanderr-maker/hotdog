@@ -1,0 +1,1 @@
+This is just private work for a mod for gentown, but im using ai to make it kinda eh its just that the other file I used which was made by somebody else was uhmw ell iuhh, huh, uhtdrjjjj uh not working good I guess and idk how to code but its just like a simple idea so yeah ignore this
